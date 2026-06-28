@@ -1,4 +1,4 @@
-# 
+# Elite new coin sniper bot modelos para Mac OS | Gratuito new coin sniper bot modelos para PC Windows. Com varredura de pools de liquidez e proteção contra front-running — otimizado para máximo desempeño en cada plataforma.
 
 
 
